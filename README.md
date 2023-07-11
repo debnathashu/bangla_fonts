@@ -1,2 +1,3 @@
 # bangla_fronts
 Free Bangla Fonts Download
+FREE UNICODE AND ANSI (SPECIFICALLY MENTIONED) BANGLA FONTS
